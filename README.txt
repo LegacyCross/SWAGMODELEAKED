@@ -7,3 +7,7 @@ The files attached are
 -Emoji Whitelist Source
 -Mod Whitelist Source
 -Swag Premium Source
+
+Skid them, spam them, do whatever
+
+SWAG TOOK A FAT L
